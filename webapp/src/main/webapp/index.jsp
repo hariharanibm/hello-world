@@ -1,1 +1,1 @@
-This is new web page with SCM poll selected
+Welcome to my channel
