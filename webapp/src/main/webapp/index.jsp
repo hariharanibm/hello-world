@@ -1,1 +1,1 @@
-World Cup Footaball 2022 in Qatar, Group A matches playing today 
+World Cup Footaball 2022 in Qatar, France, Brazil, Portuzal enter into Knockout stage
